@@ -1,4 +1,4 @@
-# 1Xslots казино отзывы | 1Xslots casino отзывы - Вся правда об онлайн-казино
+1Xslots казино отзывы | 1Xslots casino отзывы - Вся правда об онлайн-казино
 
 [![1Xslots Casino](https://brandplay.link/R4xfxqdm)](https://brandplay.link/R4xfxqdm)
 
